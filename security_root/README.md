@@ -14,9 +14,18 @@ Dieses Repository dokumentiert die technische, juristische und sicherheitstechni
 Bereitstellung einer sicheren, ethischen, transparenten Erwachsenenplattform unter Berücksichtigung von Menschenrechten, IT-Sicherheit, Jugendschutz und weltweiter Gesetzgebung.
 
 **Verbundene Domains:**
-- pornhubpremium.com
-- brazzers.xxx
-- xhamster.com (Schnittstellenprüfung)
+- www.pornhub.com
+- www.pornhub.org
+- www.pornhub.xxx
+- www.pornhub.de
+- www.pornhubpremium.com
+- www.brazzers.com
+- www.de.pornhub.org/model/bellacore
+- www.pornhubapparel.com
+- www.de.pornhub.org/blog  
+- www.pornhubpremium.com
+- www.brazzers.xxx
+- www.xhamster.com (Schnittstellenprüfung)
 - alle Subdomains unter dem Eigentum von Isabel Schöps, geborene Thiel
 
 ---
