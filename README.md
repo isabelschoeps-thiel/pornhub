@@ -15,7 +15,7 @@
 - www.pornhub.de
 - www.pornhubpremium.com
 - www.brazzers.com
-- www.de.pornhub.org/model/bellacore
+- [www.de.pornhub.org/model/bellacore](https://de.pornhub.org/model/bellacore?utm_source=ig&utm_medium=social)
 - www.pornhubapparel.com
 - www.de.pornhub.org/blog  
 - www.pornhubpremium.com
