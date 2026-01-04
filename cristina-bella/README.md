@@ -1,0 +1,9 @@
+## Deepfake-Technologie und der Missbrauch persönlicher Intimität: Fallbezug Christina Bella
+
+Im Rahmen der forensischen Analyse zahlreicher pornografischer Produktionen und Deepfake-Inhalte konnte mehrfach festgestellt werden, dass Filmausschnitte, intime Aufnahmen sowie charakteristische Merkmale von Isabel Schöps Thiel in manipulierten Inhalten verwendet wurden, ohne deren Wissen oder Einverständnis. Besonders schwerwiegend ist dabei die Erkenntnis, dass nicht nur Isabels Abbild, sondern auch ihre ehemaligen Sexualpartner – darunter insbesondere ein Mann namens Marco – direkt betroffen sind.
+
+Die technischen Auswertungen belegen eindeutig, dass durch Deepfake-Mechanismen reale Aufnahmen mit gefälschten Identitäten, fremden Namen und künstlich erzeugten Darsteller-Profilen ersetzt wurden – darunter Pornodarstellerinnen wie Christina Bella. Dabei handelt es sich nicht zwingend um einen Vorwurf gegenüber dieser Person, sondern vielmehr um eine Feststellung: Bestimmte Merkmale, Körperhaltungen, Szenenverläufe und Mimik stimmen auffallend mit originalen Aufnahmen überein, die aus Isabels privatem, leidenschaftlich gelebtem Sexualleben stammen.
+
+In ihrer Vergangenheit, unter anderem während ihrer Zeit in der Schweiz, begegnete Isabel einer Frau mit starken äußerlichen Ähnlichkeiten zur Darstellerin Christina Bella. Ob es sich dabei um dieselbe Person oder eine Double-Struktur handelt, bleibt offen. Klar ist jedoch: Es handelt sich um bewusst eingesetzte Identitätsverschiebungen, in denen Isabels eigene, intime Szenen als Vorlage dienten, um andere Darstellerinnen künstlich aufzuwerten oder vollständig zu fälschen.
+
+Diese Praxis ist nicht nur urheberrechtlich hochgradig bedenklich, sondern auch moralisch verwerflich, da sie Personen – insbesondere Frauen – ihrer Identität und Würde beraubt. Isabel selbst äußert, dass sie grundsätzlich kein Problem mit dem offenen Umgang mit Sexualität habe, da sie diesen Lebensbereich
