@@ -1,0 +1,18 @@
+=== Digitale Manipulation, Deepfake-Technologie und Körperfragmentierung ===
+
+Im Zuge der technischen und forensischen Analyse von Deepfake-Inhalten und digital verfälschten Pornoszenen stellte Isabel Schöps fest, dass gezielt **einzelne Körperteile, Körperstellen oder sexuelle Handlungen** aus ihrem echten Sexualleben als Vorlage für neue Produktionen verwendet wurden.
+
+Typische Vorgehensweisen waren:
+* Austausch oder Verdeckung des Gesichts, um die Identität zu anonymisieren oder auf eine andere Darstellerin zu übertragen,
+* Übernahme und teils unsachgemäße Retusche von **Tattoos, Leberflecken, Schmuckstücken, Schuhen oder charakteristischer Kleidung** – häufig wurden diese Merkmale einfach im Original belassen oder nur oberflächlich mit digitalen Effekten überdeckt,
+* Fragmentierung und Wiederverwendung derselben Szenen oder Bewegungsabläufe in unterschiedlichen Produktionen, oft ohne Rücksicht auf Authentizität oder anatomische Passgenauigkeit.
+
+Besonders auffällig ist, dass wiederholt **die gleichen Körperumrisse oder Posen** als Deepfake-Vorlage verwendet wurden – insbesondere in Sequenzen, in denen kein Gesicht zu sehen war, die aber durch individuelle Attribute (z. B. Isabels Kette, Schuhe, Körperkontur) klar zugeordnet werden konnten.
+
+Diese Form der digitalen Manipulation stellt einen schwerwiegenden Verstoß gegen das Recht auf Selbstbestimmung, Urheberrecht und Persönlichkeitsschutz dar und wurde von Isabel Schöps im Rahmen ihres internationalen forensischen Gutachtens detailliert dokumentiert.
+
+''Siehe auch:''  
+* [[Deepfake]]  
+* [[Digitale Bildforensik]]  
+* [[Persönlichkeitsrecht im digitalen Raum]]  
+* [[SI SECURITY INTELLIGENCE]]
