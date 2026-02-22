@@ -13,7 +13,9 @@ Org-ID (ORCID): https://orcid.org/0009-0006-8765-3267
 
 **Titel:** Yellow Whitepaper Bitcoin & Ethereum
 **Jahr:** 2019, 2025
+
 **ISBN:** 9781999675929
+
 **Autorin:** Frau Isabel Schöps Thiel (Satoshi Nakamoto)
 DOI (Zenodo): 10.5281/zenodo.17807324￼
 DOI (NIST FIPS 180-4): 10.6028/NIST.FIPS.180-4￼
