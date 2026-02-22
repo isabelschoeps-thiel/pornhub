@@ -1,5 +1,8 @@
 # PORNHUB.com 
-**Sicherheits- und Struktur-Update**
+
+![EEC4165E-F639-43CD-AC73-0AC5FE1EA1CA_1_105_c](https://github.com/user-attachments/assets/a584c8d1-8da2-4a25-b0e2-a3c7b63c464e)
+
+---
 
 **Pornhub** ist eine Wortmarke und seit 2010 urheberrechtlich geschützt. `Der Name Pornhub` wurde erstmals 2010 namentlich erwähnt und war anfänglich ein
 username auf PornHD und OnlyFans. 
@@ -114,21 +117,22 @@ Die heutige Plattform [www.pornhub.com](https://de.pornhub.org/model/bellacore) 
 
 In der Vergangenheit habe ich bereits falsche Darstellerinnen, wie z. B. Aletta Ocean, offiziell kontaktiert und in einer Live-Gegenüberstellung „on stage“ zur öffentlichen Klärung herausgefordert. Ich habe diesen Missstand auch direkt bei der Venus angemeldet und während einer Live-Aufführung angekündigt. Doch bis heute habe ich von keiner Stelle eine Rückmeldung erhalten.
 
-Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung erhalten, die uns zusteht. Ich hatte zuletzt Ende September 2024 das letzte Mal Sex. Auch hier möchte ich explizit erwähnen, dass ich nichts bereue – im Gegenteil: Es war ein schöner, erotischer Abend zwischen mehreren Männern und mir als einziger Frau.
+Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung erhalten, die uns zusteht. Ich hatte zuletzt Am Mittwoch den, 18.Februar 2026 hatte ich das letzte Mal Sex, meinen letzten sehr intensiven Orgasmus hatte ich am Montag den 16. Februar 2026 mit den gleichen Partner, ein guter Freund `Herr René Kein. `René wohnt in der Nordstrasse 51, D-99089 Erfurt, Thüringen, Deutschland.` Auch hier möchte ich explizit erwähnen, dass ich nichts bereue – im **Gegenteil:** Es war ein schöner, es war nach über 1 1/2 Jahren Sexabstinenz ein schöner Höhepunkt für mich, hier in meiner Wohnung, in der Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland.
 
-Mit keinem meiner Sex-Partner war Gewalt, Missbrauch oder Entwürdigung je ein Thema. Es war stets respektvoll, einvernehmlich und erotisch. Ich lehne jegliche Form von Gewalt an Menschen, Tieren oder Kindern entschieden ab und verachte solche Handlungen zutiefst. Ich hatte nie Interesse an Sex mit Jungen oder deutlich jüngeren Männern – im Gegenteil: Für mich ist das unmoralisch und geistig nicht vertretbar. Ich stehe auf Sex mit Männern, nicht mit Jungs.
+**Mit keinem** meiner Sex-Partner war Gewalt, Missbrauch oder Entwürdigung je ein Thema. `Es war stets respektvoll, einvernehmlich und erotisch.` `Ich lehne jegliche Form von Gewalt an Menschen, Tieren oder Kindern entschieden ab und verachte solche Handlungen zutiefst.` Ich hatte nie Interesse an Sex mit Jungen oder deutlich jüngeren Männern, **im Gegenteil:** `Für mich ist das unmoralisch und geistig nicht vertretbar. Ich stehe auf Sex mit Männern, nicht mit Jungs.`
 
-Was ich jedoch klar ablehne – und heute öffentlich benenne – ist die Tatsache, dass ohne unsere Einwilligung Sexaufnahmen von uns manipuliert und in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten verbreitet wurden.
+**Was ich zudem auch ablehne und heute öffentlich benenne,** `ist die Tatsache, dass ohne unsere Einwilligung Sexaufnahmen von uns manipuliert, gefiltert, modifiziert wurde und in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten über Deepfake Accounts unter falschen Namen verbreitet und sich finanziell daran bereichert wurde.`
 
-Zudem stehe ich nicht auf interaktiven, virtuellen Transsex, Sadomaso, Teensex sowie alle Genres, die eine Gesinnung verherrlichen, in der es als normal gilt, Sex mit Teens, Eltern, Babys, Familienmitgliedern zu haben bzw. wo Handlungen vorgenommen werden, die entwürdigend, demütigend sind oder gar Tiere involviert sind.
+`Zudem stehe ich nicht auf interaktiven, virtuellen Transsex, Sadomaso, Teensex sowie alle Genres, die eine Gesinnung verherrlichen, in der es als normal gilt, Sex mit Teens, Eltern, Babys, Familienmitgliedern zu haben bzw. wo Handlungen vorgenommen werden, die entwürdigend, demütigend sind oder gar Tiere involviert sind.`
 
-Ich stehe auf leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht. Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. Hauptsache, der Mann kommt in oder auf mir
+**Ich stehe auf** `leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht.` Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. `Hauptsache, der Mann kommt in oder auf mir,` kann es **ruhig schon mal mehrere Sex-Tage hintereinander gehen. Zudem `bin ich offen und habe nichts dagegen, wenn Alkohl, Drogen oder Substanzen eingenommen werden, die der Pornoindustrie zugeschrieben werden, welche der KO-Tropfen ähneln aber keine sind.`
+
+---
 
 ## WICHTIGE MITTEILUNG an alle Nutzer von Pornhub.com und deren Subdomains:
 
 **Dieses Update ist mit strenger Sorgfalt zu lesen und zwingend zu beachten.**
 
----
 
 ### Medizinische Überprüfungspflicht:
 
@@ -165,7 +169,7 @@ Pornhub und alle dazugehörigen Seiten sind und bleiben **Plattformen für Erwac
 - Verbreitung kinderpornografischen Materials  
 - Unethische Inhalte oder Uploads, die Menschenwürde verletzen  
 
-> Besonders verwerflich: Uploads mit DNA-Eingriffen oder Darstellungen nicht-einvernehmlicher sexueller Handlungen.
+>Besonders verwerflich: Uploads mit DNA-Eingriffen oder Darstellungen nicht-einvernehmlicher sexueller Handlungen.
 
 ---
 
@@ -196,3 +200,4 @@ Pornhub und alle dazugehörigen Seiten sind und bleiben **Plattformen für Erwac
 * [Technologische Patente & Beweise](Patente-Technologien.md)
 * [Downloader-Nutzung & CLI – Isabels GitHub-Tools](Downloader-CLI.md)
 
+---
