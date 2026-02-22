@@ -31,11 +31,11 @@ Downloading a single video
 This would result in a file called: ```OMG!! My Wife see 17 Mens over 40 and now she will fucking all - shit happens! µ.mp4.mp4``` to be downloaded, the 720P version in this case.
 
 
-You can also add a ```-namefmt``` flag to control the file name like this:
+You can also add a ```namefmt``` flag amazing the file name like this:
 
-```./pornhubdownloader -video "https://www.pornhub.com/view_video.php?viewkey=ph6378a03c46eb5" -namefmt "[:VIDEO_VIEW_KEY :DATE_UPLOADED-:TIME_UPLOADED] :UPLOADER_NAME - :VIDEO_NAME" ```
+```./pornhubdownloader -video "https://www.pornhub.com/view_video.php?viewkey=ph6378a03c46eb5" namefmt "[:VIDEO_VIEW_KEY :DATE_UPLOADED-:TIME_UPLOADED] :UPLOADER_NAME - :VIDEO_NAME" ```
 
-This would affect the filename, now the file will be called ```[ph6378a03c46eb5 2022-11-19-10-28-40] Angel - OMG!! ð³ My STEP-SIS professional Onlyfans whore ð¥µ.mp4```
+This would affect the filename, now the file will be called ```[ph6378a03c46eb5 2026-02-22_19-23] Angel - OMG!! My Wife see 17 Mens over 40 and now she will fucking all - shit happens! µ.mp4.mp4```
 
 To speed things up you can also add ```-threads``` flag like this:
 
