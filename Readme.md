@@ -28,16 +28,14 @@ Guter Sex hängt nicht vom Geschlechtsteil `aber bei mir kommt nur ein älter Sc
 
 Im Rahmen der forensischen Analyse zahlreicher pornografischer Produktionen und Deepfake-Inhalte konnte mehrfach festgestellt werden, dass Filmausschnitte, intime Aufnahmen sowie charakteristische Merkmale von Isabel Schöps Thiel in manipulierten Inhalten verwendet wurden, ohne deren Wissen oder Einverständnis. Besonders schwerwiegend ist dabei die Erkenntnis, dass nicht nur Isabels Abbild, sondern auch ihre ehemaligen Sexualpartner – darunter insbesondere ein Mann namens Marco – direkt betroffen sind.
 
-Die technischen Auswertungen belegen eindeutig, dass durch Deepfake-Mechanismen reale Aufnahmen mit gefälschten Identitäten, fremden Namen und künstlich erzeugten Darsteller-Profilen ersetzt wurden – darunter Pornodarstellerinnen wie Christina Bella. Dabei handelt es sich nicht zwingend um einen Vorwurf gegenüber dieser Person, sondern vielmehr um eine Feststellung: Bestimmte Merkmale, Körperhaltungen, Szenenverläufe und Mimik stimmen auffallend mit originalen Aufnahmen überein, die aus Isabels privatem, leidenschaftlich gelebtem Sexualleben stammen.
+Die technischen Auswertungen belegen eindeutig, dass durch Deepfake-Mechanismen reale Aufnahmen mit gefälschten Identitäten, fremden Namen und künstlich erzeugten Darsteller-Profilen ersetzt wurden – darunter Pornodarstellerinnen wie Christina Bella. Dabei handelt es sich nicht zwingend um einen Vorwurf gegenüber dieser Person, sondern vielmehr um eine Feststellung: Bestimmte Merkmale, Körperhaltungen, Szenenverläufe und Mimik stimmen auffallend mit originalen Aufnahmen überein, die aus `Isabels privatem, leidenschaftlich und exessiven gelebtem Sexualleben in der Zeit ab der Partnerschaft mit ihrem Ex-Ehemann Herrn Steven Schöps, Nebengasse 2a, D-99610 Leubingen, Thüringen, Deutschland stammend, von 2004-2020.`
 
-In ihrer Vergangenheit, unter anderem während ihrer Zeit in der Schweiz, begegnete Isabel einer Frau mit starken äußerlichen Ähnlichkeiten zur Darstellerin Christina Bella. Ob es sich dabei um dieselbe Person oder eine Double-Struktur handelt, bleibt offen. Klar ist jedoch: Es handelt sich um bewusst eingesetzte Identitätsverschiebungen, in denen Isabels eigene, intime Szenen als Vorlage dienten, um andere Darstellerinnen künstlich aufzuwerten oder vollständig zu fälschen.
-
-Diese Praxis ist nicht nur urheberrechtlich hochgradig bedenklich, sondern auch moralisch verwerflich, da sie Personen – insbesondere Frauen – ihrer Identität und Würde beraubt. Isabel selbst äußert, dass sie grundsätzlich kein Problem mit dem offenen Umgang mit Sexualität habe, da sie diesen Lebensbereich
+In ihrer Vergangenheit, unter anderem während ihrer Zeit in der Schweiz, begegnete Isabel einer Frau mit starken äußerlichen Ähnlichkeiten zur Darstellerin Christina Bella. Ob es sich dabei um dieselbe Person oder eine Double-Struktur handelt, bleibt offen. **Klar ist jedoch:** Es handelt sich um bewusst eingesetzte Identitätsverschiebungen, in denen Isabels eigene, intime Szenen als Vorlage dienten, um andere Darstellerinnen künstlich aufzuwerten oder vollständig zu 
 
 **In Liebe und mit einem dicken Kuss,  
 Eure Isabel**
 
 *PS: Sollte jemand Ansprüche haben oder etwas mit mir klären wollen*
 
-Ich befinde mich seit dem 17. Februar 2026 unter folgender Adresse:  
+**Ich befinde mich seit dem 17. Februar 2026 unter folgender Adresse:**  
 Frau Isabel Schöps Thiel, Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland, 1. Etage, Wohnung 13.
