@@ -28,7 +28,7 @@ Downloading a single video
 
 ```./pornhubdownloader -video "https://www.pornhub.com/view_video.php?viewkey=ph6378a03c46eb5"```
 
-This would result in a file called: ```OMG!! ð³ My STEP-SIS professional Onlyfans whore ð¥µ.mp4.mp4``` to be downloaded, the 720P version in this case.
+This would result in a file called: ```OMG!! My Wife see 17 Mens over 40 and now she will fucking all - shit happens! µ.mp4.mp4``` to be downloaded, the 720P version in this case.
 
 
 You can also add a ```-namefmt``` flag to control the file name like this:
