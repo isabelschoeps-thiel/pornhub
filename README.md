@@ -125,7 +125,17 @@ Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung 
 
 `Zudem stehe ich nicht auf interaktiven, virtuellen Transsex, Sadomaso, Teensex sowie alle Genres, die eine Gesinnung verherrlichen, in der es als normal gilt, Sex mit Teens, Eltern, Babys, Familienmitgliedern zu haben bzw. wo Handlungen vorgenommen werden, die entwürdigend, demütigend sind oder gar Tiere involviert sind.`
 
-**Ich stehe auf** `leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht.` Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. `Hauptsache, der Mann kommt in oder auf mir,` kann es **ruhig schon mal mehrere Sex-Tage hintereinander gehen. Zudem `bin ich offen und habe nichts dagegen, wenn Alkohl, Drogen oder Substanzen eingenommen werden, die der Pornoindustrie zugeschrieben werden, welche der KO-Tropfen ähneln aber keine sind.`
+**Ich stehe auf** `leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht.` Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. `Hauptsache, der Mann kommt in oder auf mir,` hier kann es **ruhig schon mal mehrere Sex-Tage hintereinander gehen. Zudem `bin ich offen und habe nichts dagegen, wenn Alkohl, Drogen oder Substanzen eingenommen werden, die der Pornoindustrie zugeschrieben werden, welche der KO-Tropfen ähneln aber keine sind.` 
+
+Während meiner Fitness-Bodybuilding-Zeit habe ich zum Muskelaufbau Wachstumshormone sowie Steroide zu Oral oder intravenös eingenommen, in dieser Zeit ist auch meine Libido gestiegen und war dauer geil. Hier hat sich was in mir entwickelt, was mir ein Triep nach sex, schönen Männern und schwänzen weckte, dass ist bestimmt auch der Grund warum ich gegen Gruppensex und Gangbangs und vielen reifen Männernschwänzen am besten ab 40 (wenn 2 Jahre jünger auch eine extreme Lust verspüre.  
+
+Auch wenn ich beobachtet werde, interessiert mich das nicht, es ist dass Zusammenspiel von allem; dem unviederstehlichen Mann, Sex, Drugs and Rockn Roll- was mich in eine extase der Lust und Leidenschaft versetzt und ich mich fallen lassen kann. Was für mich ein Tabu-Thema ist und nicht in Frage kommt; sind verheiratete und Männer in Partnerschaften. 
+
+**Dies hat was mit Respekt gegenüber der Frau und Fehltritten aus der Vergangenheit zutun.** Zumal möchte ich auch nicht, in einer Partnerschaft betrogen werden. `Sex ist essentiel und spielt in der Partnerschaft eine große Rolle, ohne guten Sex, ist die Beziehung zum scheitern verurteilt.` Zudem ist es wichtig zu kommunizieren und die Gelüste oder auch Fetisch seines Partners zu kennen. `Wenn er eine zweite Frau` oder die Abwechslung brauch- kein Problem, aber dann will ich auch einen zweiten Mann. 
+
+`Es muss fair und auf Augenhöhe sein` **und am besten,** keine Freunde oder Bekannt aus dem Bekanntenkreis `(Familie ist eh Tabu und ist für mich ein absoluter abturner)` Pornodarsteller(innen) oder Prostetuierte, sind hier die besten alternativen, um Eifersucht auch meinerseits zu vermeiden, `denn wenn ich liebe, dann liebe ich bedingungslos.`
+
+eine habe  Gangbangs von mir aus auch mit Frauen, habe
 
 ---
 
