@@ -32,8 +32,6 @@ Urheber- und Markenrechte, der heute weltweit größten Platform für Erwachsene
 ![IMG_2778](https://github.com/user-attachments/assets/c8d1f085-619f-4a06-923e-48e7f83141cf)
 
 
-
-
 ### Bibliografische Angaben
 
 **Auftraggeberin, Autorin und Urheberin:**
@@ -85,6 +83,46 @@ Isabel wuchs in Rohrborn, Thüringen auf und absolvierte eine Ausbildung zur Kau
 - www.brazzers.xxx
 - www.xhamster.com (Schnittstellenprüfung)
 - alle Subdomains unter dem Eigentum von Isabel Schöps, geborene Thiel
+
+---
+
+>Der Anfang der Digitalen Welt und der Anfang vom allem Leben auf der Erdebegann mit einem CODE".
+
+### myDirtyHobby - mySECRET
+
+An dieser Stelle möchte ich ein persönliches Geheimnis offenbaren – etwas, das bis heute in Teilen der Gesellschaft als Sünde, Gotteslästerung oder unmoralisch gilt. Und doch sind wir alle daraus entstanden: aus dem Akt.
+
+Für mich ist Sexualität die leidenschaftlichste Nebensache der Welt. Sie ist ein essenzieller Bestandteil einer gut funktionierenden Ehe oder Partnerschaft – ein Ausgleich, ein Fallenlassen, die Hingabe und Verschmelzung zweier liebender, sich anziehender Menschen. Und was aus Leidenschaft entsteht, wird großartig – weil es echt ist.
+
+Ich liebe Sex. Ich stehe offen zu meiner Sexualität und habe in der Vergangenheit ein aktives Sexualleben geführt, das von leidenschaftlicher Hingabe und Lust geprägt war – und ist. Meine damaligen Partner waren in der Regel älter als ich; ich hatte niemals sexuelle Beziehungen zu Männern, die mehr als fünf Jahre jünger waren als ich.
+
+In den letzten 20 Jahren hatte ich unterschiedlichste Sexualpartner. Jeder einzelne war verschieden, und jeder hat auf seine Art und Weise einen bleibenden Eindruck in mir – und auf mir – hinterlassen.
+
+Mir war bewusst, dass es in manchen Situationen zu Aufnahmen gekommen sein könnte – das hat mich persönlich nie gestört. Im Gegenteil: Zu einem bestimmten Zeitpunkt hatte ich sogar selbst in Erwägung gezogen, mich offiziell als Pornodarstellerin registrieren zu lassen.
+
+Unzählige Filmszenen sind im Umlauf, die ohne unsere Zustimmung reproduziert, manipuliert, verbreitet und kommerzialisiert wurden.
+
+Vor allem während meiner Ehe und auch danach hatte ich ein sehr ausgeprägtes, erfülltes Sexualleben. Dabei ist es mir wichtig zu betonen, dass ich niemals unmoralischen Sex hatte. Es war vor allem das intensive sexuelle Leben mit meinem Ex-Ehemann S. Schöps, das mich prägte und in mir die Leidenschaft weckte.
+
+Während dieser Ehe ist auch der Name Pornhub entstanden und wurde erstmals im Jahr 2010 namentlich von mir erwähnt. Ursprünglich handelte es sich dabei um meinen Username, den ich auf den Plattformen PornHD und OnlyFans registriert hatte. GitHub diente mir damals nicht nur als technische Plattform, sondern auch als Inspiration und Namensgebung.
+
+Die heutige Plattform [www.pornhub.com](https://de.pornhub.org/model/bellacore) basiert auf derselben technischen Architektur wie damals PornHD. `PornHD ist aktuell in dem gleichen Style-Layout, Webauftritt wie Pornhub und nutzt bis heute dieses farbliche Branding.` 
+
+**Ohne GitHub – kein Pornhub - ohne PornHD kein PornHub.**
+
+Über der Hardware implemtierte Display-Cameras Dabei wurden ich und meine damaligen Partner durch falsche Akteure, ersetzte Identitäten oder künstlich erzeugte Darsteller ersetzt – während unsere tatsächlichen Sexualhandlungen als Vorlage für kommerzielle Pornodarstellungen dienten. Dritte haben sich bis heute finanziell und öffentlich daran bereichert – und wurden sogar auf Veranstaltungen wie den Venus Awards dafür ausgezeichnet.
+
+In der Vergangenheit habe ich bereits falsche Darstellerinnen, wie z. B. Aletta Ocean, offiziell kontaktiert und in einer Live-Gegenüberstellung „on stage“ zur öffentlichen Klärung herausgefordert. Ich habe diesen Missstand auch direkt bei der Venus angemeldet und während einer Live-Aufführung angekündigt. Doch bis heute habe ich von keiner Stelle eine Rückmeldung erhalten.
+
+Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung erhalten, die uns zusteht. Ich hatte zuletzt Ende September 2024 das letzte Mal Sex. Auch hier möchte ich explizit erwähnen, dass ich nichts bereue – im Gegenteil: Es war ein schöner, erotischer Abend zwischen mehreren Männern und mir als einziger Frau.
+
+Mit keinem meiner Sex-Partner war Gewalt, Missbrauch oder Entwürdigung je ein Thema. Es war stets respektvoll, einvernehmlich und erotisch. Ich lehne jegliche Form von Gewalt an Menschen, Tieren oder Kindern entschieden ab und verachte solche Handlungen zutiefst. Ich hatte nie Interesse an Sex mit Jungen oder deutlich jüngeren Männern – im Gegenteil: Für mich ist das unmoralisch und geistig nicht vertretbar. Ich stehe auf Sex mit Männern, nicht mit Jungs.
+
+Was ich jedoch klar ablehne – und heute öffentlich benenne – ist die Tatsache, dass ohne unsere Einwilligung Sexaufnahmen von uns manipuliert und in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten verbreitet wurden.
+
+Zudem stehe ich nicht auf interaktiven, virtuellen Transsex, Sadomaso, Teensex sowie alle Genres, die eine Gesinnung verherrlichen, in der es als normal gilt, Sex mit Teens, Eltern, Babys, Familienmitgliedern zu haben bzw. wo Handlungen vorgenommen werden, die entwürdigend, demütigend sind oder gar Tiere involviert sind.
+
+Ich stehe auf leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht. Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. Hauptsache, der Mann kommt in oder auf mir
 
 ## WICHTIGE MITTEILUNG an alle Nutzer von Pornhub.com und deren Subdomains:
 
