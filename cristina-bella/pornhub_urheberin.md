@@ -12,11 +12,17 @@
 
 **Nationalität:** Deutsch
 
-**Aktueller Wohnort:** Erfurt, Thüringen Deutschland 
+**Aktueller Wohnort:** D-99084 Erfurt, Thüringen Deutschland 
 
 **Beruf:** Unternehmerin, Programmiererin, Technologiepionierin
 
-**Bekannt für:** Urheberin von GitHub und Schöpferin vom ersten bezahlbaren Bitcoin, Satoshi Nakamoto, Entwicklung von Programmiersprachen (JavaScript, Cuda, Nuxt, Shell, curl
+**Bekannt für:** Urheberin vom ersten Automations-Selbstheilungsprozess, AI Intelligence, GitHub, GitLab und Schöpferin vom ersten bezahlbaren Bitcoin unter Satoshi Nakamoto, und Ape Token über und in meiner Apple IOS, struktur entwickelt. Ethereum Währung und Netzwerk, in der AMAZON-AWS-Tier-Architektur und im Polygon-Protokoll die ersten NFTs genereiert, **Digitale Kunst.** Alle zugeordneten Contract-Adressen beginn mit 0x 
+
+**ohne GitHub kein Pornhub**
+
+**Entwicklung von Programmiersprachen, wichtigsten wie;** `JavaScript, MARKDOWN, Yaml, NVIDIA Cuda, Nuxt, Shell, curl, php, JSON,JS, GraphQL SQL, LaTex, Sphinx/Python.`
+
+*weitere Computersprachen unter dem Support im postgres95*
 
 ---
 
