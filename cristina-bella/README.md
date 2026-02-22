@@ -1,3 +1,11 @@
+# Cristina Bella
+
+**CRISTINA BELLA:** Pseudonym for identity misappropriation and monetization of personal video content, see: Schöps, I. (2025). CHRISTINA CRISTINA BELLA PORNODARSTELLERIN. [online] Flipboard. https://flipboard.com/@natoshinakamoto/christina-cristina-bella-pornodarstellerin-fqv7c73rz (accessed 13 Oct 2025)
+
+**Schöps, I. (2025).** SIA Security Intelligence Artefact. Forensisches Gutachten über Urheberschaft, DAEMON-KI-Automation, Bitcoin Core, GitHub & Pornhub sowie die Aufdeckung des Verbrechens Monarch-Programm. `INT-CODE-2025-BTC/ETH-CORE-ISABELSCHOEPSTHIEL,` Erfurt: Springer Verlag. Juristische Untermauerung: Harvard University, University of Oxford, Japan , Genf, Schweiz. DOI: https://doi.org/10.5281/zenodo.17809724
+
+---
+
 Selbstbewusste, 163 cm große, langhaarige Brünette, 53 kg schwere Isabel, auch bekannt als Christina, Cristina Bella. Isabel Schöps wurde am 16. Juli 1983 in Sömmerda, Thüringen, Deutschland geboren. Mutter einer Tochter und geschiedene Single-Frau. Ich liebe guten Sex und lebe seit über 22 Jahren meine Lust und Leidenschaft aus. Es war fast immer (zumindest in den letzten 16 Jahren) eine Kamera dabei.
 
 Sei es im Fernsehen implementiert – und das seit 2002/03 fast in jedem Fernseher – oder durch Direktaufnahmen. Mich hat das nie gestört, im Gegenteil. Was ich jedoch klar ablehne, ist die Tatsache, dass ohne mein Wissen Sexaufnahmen von mir und meinen Partnern gestohlen, manipuliert und in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten verbreitet wurden. Dabei wurden ich und meine damaligen Partner durch falsche Akteure, Identitäten und Deepfakes oder künstlich erzeugte Darsteller ersetzt.
