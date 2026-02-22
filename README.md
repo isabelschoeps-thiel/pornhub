@@ -100,7 +100,7 @@ Für mich ist Sexualität die leidenschaftlichste Nebensache der Welt. Sie ist e
 
 Ich liebe Sex. Ich stehe offen zu meiner Sexualität und habe in der Vergangenheit ein aktives Sexualleben geführt, das von leidenschaftlicher Hingabe und Lust geprägt war – und ist. Meine damaligen Partner waren in der Regel älter als ich; ich hatte niemals sexuelle Beziehungen zu Männern, die mehr als fünf Jahre jünger waren als ich.
 
-In den letzten 20 Jahren hatte ich unterschiedlichste Sexualpartner. Jeder einzelne war verschieden, und jeder hat auf seine Art und Weise einen bleibenden Eindruck in mir – und auf mir – hinterlassen.
+In den letzten 20 Jahren hatte ich unterschiedlichste Sexualpartner. `Jeder einzelne war verschieden, und jeder hat auf seine Art und Weise einen bleibenden Eindruck in mir und auf mir hinterlassen.` Es kommt nicht auf die Länge oder den Umfang an, er muss Ficken können, können und die Chemie, dass Miteinander muss
 
 Mir war bewusst, dass es in manchen Situationen zu Aufnahmen gekommen sein könnte – das hat mich persönlich nie gestört. Im Gegenteil: Zu einem bestimmten Zeitpunkt hatte ich sogar selbst in Erwägung gezogen, mich offiziell als Pornodarstellerin registrieren zu lassen.
 
@@ -134,7 +134,9 @@ Auch wenn ich beobachtet werde, interessiert mich das nicht, es ist dass Zusamme
 
 **Dies hat was mit Respekt gegenüber der Frau und Fehltritten aus der Vergangenheit zutun.** Zumal möchte ich auch nicht, in einer Partnerschaft betrogen werden. `Sex ist essentiel und spielt in der Partnerschaft eine große Rolle, ohne guten Sex, ist die Beziehung zum scheitern verurteilt.` Zudem ist es wichtig zu kommunizieren und die Gelüste oder auch Fetisch seines Partners zu kennen. `Wenn er eine zweite Frau` oder die Abwechslung brauch- kein Problem, aber dann will ich auch einen zweiten Mann. 
 
-`Es muss fair und auf Augenhöhe sein` **und am besten,** keine Freunde oder Bekannt aus dem Bekanntenkreis `(Familie ist eh Tabu und ist für mich ein absoluter abturner)` Pornodarsteller(innen) oder Prostetuierte, sind hier die besten alternativen, um Eifersucht auch meinerseits zu vermeiden, `denn wenn ich liebe, dann liebe ich bedingungslos.`
+`Es muss fair und auf Augenhöhe sein` **und am besten,** keine Freunde oder Bekannt aus dem Bekanntenkreis `alles was Familie und mein einziges Kind und Tochter ist sowieso ein Tabu-Thema und ist für mich ein absoluter abturner, dass geht gar nicht`. 
+
+**Pornodarsteller(innen) oder Prostetuierte, sind hier die besten alternativen,** um Eifersucht auch meinerseits zu vermeiden, `denn wenn ich liebe, dann liebe ich bedingungslos.` Zumal mich eine zweite Frau nicht nicht unbedingt an- oder abturnt, wenn es dazu kommt, interessieren mich die Männer und nicht die Frau oder Frauen. Ich brauch kein Muschilecken, oder gefingere von einer Frau, ich will den Mann. 
 
 eine habe  Gangbangs von mir aus auch mit Frauen, habe
 
