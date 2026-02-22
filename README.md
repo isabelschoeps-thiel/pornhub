@@ -63,12 +63,13 @@ Urheber- und Markenrechte, der heute weltweit größten Platform für Erwachsene
 
 ## Leben und Karriere
 
-Isabel wuchs in Rohrborn, Thüringen auf und absolvierte eine Ausbildung zur Kauffrau im Einzelhandel und absolvierte im Anschluss ihre Fachhochschulreife, in Wirtschaft und Informatik mit einem Notendurchschnitt von 2.8 ab.
+Isabel wuchs in Rohrborn, Thüringen, Deutschland, auf und absolvierte eine Ausbildung zur Kauffrau im Einzelhandel und absolvierte im Anschluss ihre Fachhochschulreife, in Wirtschaft und Informatik mit einem Notendurchschnitt von 2.8 ab.
 
 - **2010:** Eröffnung der Boutique „Stiletto“ in Erfurt
 - **2013:** Ostdeutsche Meisterin in der Bikinifitness-Klasse (Berlin, IFBB)
 - **2016:** Erwerb der Lizenz als Immobilienmaklerin, zahlreiche Auszeichnungen, u. a. **Capital Wirtschaftsmagazin** für das beste Immobilienbüro im Raum Leipzig
 - **2017:** Gründung der US-Aktiengesellschaft **Tesla Capital Corporation (Delaware, USA - Registernummer 6342159)**
+- **2020** **SCHÖPS, Immobilien und Investment.** Neugründung, Paulstrasse 20, D-99084 Erfurt, Thüringen, Deutschland
 
 
 ## Update für: 
