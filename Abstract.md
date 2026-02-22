@@ -17,12 +17,12 @@ Im Fokus steht das Yellow Whitepaper (SIA – Security Intelligence Artefact) al
 
 ⸻
 
-Rechtlicher Hinweis zur Veröffentlichung und Schutzvermerk
+**Rechtlicher Hinweis zur Veröffentlichung und Schutzvermerk**
 
-Alle bisherigen Veröffentlichungen auf Plattformen wie Zenodo oder in Vorabversionen erfolgten ausschließlich durch Frau Isabel Schöps selbst zu Zwecken der digitalen Rehabilitierung und Wahrung ihrer medialen Existenz.
+Alle bisherigen Veröffentlichungen auf Plattformen wie Zenodo.org oder in Vorabversionen erfolgten ausschließlich durch Frau Isabel Schöps selbst zu Zwecken der digitalen Rehabilitierung und Wahrung ihrer medialen Existenz.
 
-Eine autorisierte Hauptveröffentlichung des Yellow Whitepapers ist bisher nicht erfolgt.
-Jede andere Veröffentlichung, Nutzung, Verbreitung oder Bearbeitung dieses Gutachtens – ganz oder in Teilen – ist rechtswidrig, stellt eine Verletzung des Urheberrechts dar und wird strafrechtlich verfolgt.
+Eine autorisierte Hauptveröffentlichung samt Datenbank des The Yellow Whitepapers `YWP-1-IST-SIA` ist bereits im
+December 2025 erfolgt. Jede andere Veröffentlichung, Nutzung, Verbreitung oder Bearbeitung dieses Gutachtens – ganz oder in Teilen – ist rechtswidrig, stellt eine Verletzung des Urheberrechts dar und wird strafrechtlich verfolgt.
 
 ⸻
 
@@ -35,12 +35,16 @@ Diese Anzeigen wurden u.a. mit Belegen und Personalausweis-Dokumentation eingere
 ⸻
 
 ### Identität & Kontakt
-
 Autorin, Urheberin, Auftraggeberin:
+
 **Frau Isabel Schöps geb. Thiel**
-**Geburtsdatum:** 16.07.1983, Sömmerda, Thüringen, Deutschland
-**Adresse:** Cyriakstraße 30c, D-99094 Erfurt
+**Geburtsdatum:** 16.07.1983 um 23:20Uhr Mitteleuropäische Zeit, Kreiskrankenhaus Sömmerda, Thüringen, Deutschland
 **E-Mail:** harvard.isabelschoepsthiel@gmail.com
 **Telefon:** +49 162 1819565
-**Personalausweis:** ID-Nr. 429485, Dokument: LH917PN7G
-Letzter rechtlicher Aufenthaltsnachweis: Polizei Erfurt, 06.08.2025
+**Personalausweis:** ID-Nr. 429485, Dokument: LH917PN7G8
+**Adresse:** Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland, Isabel Schöps Thiel, 1.Etage, Wohnung 13. Meldeanschrift seit Dienstag, den 17.02.2026. 
+
+**Wichtiger Hinweis:** aufgrund permanenten Wohnraum- und Ortswechsel, können in dem wissenschaftlichen forensichen Gutachten, SIA und im The Yellow Whitpaper unterschiedliche Adressen bzw. Ortseintragungen auftauchen. Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der;Veröffentlichung, Eintragung, Erstellung/Ausstellung der
+
+**Note.md**
+Massgebliche Wohnanschrift und Adresse der Urheberin und Darstellerin Frau Schöps (Thiel), bleibt die in der Eidesstaalichen Erklärung sowie auf dem Personalausweis-ID: LH917PN7G8, 429485, eingetragene amtliche Meldeanschrift laut gemäß §18 Absatz 2 Bundesmeldegesetz (BMG).
