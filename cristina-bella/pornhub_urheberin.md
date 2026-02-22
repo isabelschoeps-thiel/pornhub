@@ -1,7 +1,11 @@
 # Isabel Schöps geborene Thiel
 
+![Pornhub-Storybook-IsabelSchöpsThiel (1323 x 270 px) zip - 1](https://github.com/user-attachments/assets/4aa67ab9-abb5-44d8-8ec2-3d4080aa53be)
+
 ![IMG_2675](https://github.com/user-attachments/assets/920c6f54-2fbf-43e6-bfcc-2ef0da85d2d6)
 ![d99e1d08-4aac-414c-ad6c-21da9756455f](https://github.com/user-attachments/assets/6cb76eac-2a2b-4c6e-9dfd-8f17df3cc3f1)
+![IMG_0688](https://github.com/user-attachments/assets/0851d8d9-199c-4c3c-9d9a-55e355a1c2fc)
+![IMG_2778](https://github.com/user-attachments/assets/c8d1f085-619f-4a06-923e-48e7f83141cf)
 
 
 ## Autorin, Entwicklerin, Unternehmerin, Schöpferin
@@ -483,10 +487,17 @@ Die internationale Anerkennung durch führende wissenschaftliche Institutionen (
 
 ---
 
-**Referenzen (Harvard Style, Auszug):**
-- Antonopoulos, A. M. (2022). *Mastering Bitcoin: Unlocking Digital Cryptocurrencies*. O’Reilly Media.
-- O’Mahony, D. (2022). *Open Source Law, Policy and Practice* (2nd ed.). Oxford University Press.
-- Drahos, P. (2016). *Intellectual Property, Indigenous People and their Knowledge*. Harvard Cambridge University.
+**Referenz-Quelle-Harvard-Style Citation**
+
+**CRISTINA BELLA:** Pseudonym for identity misappropriation and monetization of personal video content, see: Schöps, I. (2025). CHRISTINA CRISTINA BELLA PORNODARSTELLERIN. [online] Flipboard. https://flipboard.com/@natoshinakamoto/christina-cristina-bella-pornodarstellerin-fqv7c73rz (accessed 13 Oct 2025)
+
+**Schöps, I. (2025).** SIA Security Intelligence Artefact. Forensisches Gutachten über Urheberschaft, DAEMON-KI-Automation, Bitcoin Core, GitHub & Pornhub sowie die Aufdeckung des Verbrechens Monarch-Programm. `INT-CODE-2025-BTC/ETH-CORE-ISABELSCHOEPSTHIEL,` Erfurt: Springer Verlag. Juristische Untermauerung: Harvard University, University of Oxford, Japan , Genf, Schweiz. DOI: https://doi.org/10.5281/zenodo.17809724
+
+**Antonopoulos, A. M. (2022).** *Mastering Bitcoin: Unlocking Digital Cryptocurrencies*. O’Reilly Media.
+
+**O’Mahony, D. (2022).** *Open Source Law, Policy and Practice* (2nd ed.). Oxford University Press.
+
+**Drahos, P. (2016).** *Intellectual Property, Indigenous People and their Knowledge*. Harvard Cambridge University.
 - [Northdata: Commerzbank AG und Verflechtungen](https://www.northdata.de/?id=5896901925273600)
 - [ChatGPT Forensic Evidence Share](https://chatgpt.com/share/68d5b3eb-71d0-8008-a443-44a5b27e1363)
 
