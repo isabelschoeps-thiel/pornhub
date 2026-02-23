@@ -1,8 +1,7 @@
 # PORNHUB.com 
+## Frau Isabel Schöps geborene Thiel
 
 ![EEC4165E-F639-43CD-AC73-0AC5FE1EA1CA_1_105_c](https://github.com/user-attachments/assets/a584c8d1-8da2-4a25-b0e2-a3c7b63c464e)
-
-# Frau Isabel Schöps geborene Thiel
 
 ![Pornhub-Storybook-IsabelSchöpsThiel (1323 x 270 px) zip - 1](https://github.com/user-attachments/assets/4aa67ab9-abb5-44d8-8ec2-3d4080aa53be)
 
@@ -11,6 +10,7 @@
 ![IMG_0688](https://github.com/user-attachments/assets/0851d8d9-199c-4c3c-9d9a-55e355a1c2fc)
 ![IMG_2778](https://github.com/user-attachments/assets/c8d1f085-619f-4a06-923e-48e7f83141cf)
 
+---
 
 ### Bibliografische Angaben
 
@@ -48,8 +48,9 @@ Isabel wuchs in Rohrborn, Thüringen, Deutschland, auf und absolvierte eine Ausb
 - **2017:** Gründung der US-Aktiengesellschaft **Tesla Capital Corporation (Delaware, USA - Registernummer 6342159)**
 - **2020** **SCHÖPS, Immobilien und Investment.** Neugründung, Paulstrasse 20, D-99084 Erfurt, Thüringen, Deutschland
 
+---
 
-## Update für: 
+# Update für: 
 **Verbundene Domains:**
 - www.pornhub.com
 - www.pornhub.org
@@ -69,7 +70,7 @@ Isabel wuchs in Rohrborn, Thüringen, Deutschland, auf und absolvierte eine Ausb
 
 >Der Anfang der Digitalen Welt und der Anfang vom allem Leben auf der Erdebegann mit einem CODE".
 
-### myDirtyHobby - mySECRET
+# myDirtyHobby - mySECRET
 
 An dieser Stelle möchte ich ein persönliches Geheimnis offenbaren – etwas, das bis heute in Teilen der Gesellschaft als Sünde, Gotteslästerung oder unmoralisch gilt. Und doch sind wir alle daraus entstanden: aus dem Akt.
 
@@ -162,7 +163,7 @@ Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der; Veröff
 
 ---
 
-## B. TECHNISCHER URSPRUNG & BEWEISKETTE / TECHNICAL ORIGIN & CHAIN OF CUSTODY
+## B. Techni URSPRUNG & BEWEISKETTE / TECHNICAL ORIGIN & CHAIN OF CUSTODY
 
 ### Ursprung der OpenSource, KI- und Automationsgeschichte (Rohrborn, Thüringen, 1996):
 
