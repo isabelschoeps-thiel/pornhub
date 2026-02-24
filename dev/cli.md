@@ -2,7 +2,9 @@
 
 **Copyright:** Isabel Schöps, geborene Thiel – Erfurt, Deutschland
 
-Ein vollwertiger Downloader für [Pornhub.com](https://www.pornhub.com/) und verbundene Plattformen. Ermöglicht Login, Download von Premium-/Private-/Bezahl-Inhalten in hoher Auflösung.
+The `Pornhub Downloader` für [Pornhub.com](https://www.pornhub.com/) und pornhubpremium.com sowie allen weiteren Plattformen. 
+
+Dies ermöglicht Login, Download von Premium-/Private-/Bezahl-Inhalten in hoher Auflösung und Qualität.
 
 ## Unterstützte Inhalte
 
