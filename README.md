@@ -317,10 +317,10 @@ Pornhub und alle dazugehörigen Seiten sind und bleiben **Plattformen für Erwac
 - Gewalt an Mensch und Tier  
 - Kinder- und Menschenhandel  
 - Kommerzielle sexuelle Ausbeutung  
-- Verbreitung kinderpornografischen Materials  
-- Unethische Inhalte oder Uploads, die Menschenwürde verletzen  
+- das Aufnehmen und Verbreiten von kinderpornografischen Materialien  
+- Unethische Inhalte oder Uploads, welche die Menschenwürde verletzen  
 
->Besonders verwerflich: Uploads mit DNA-Eingriffen oder Darstellungen nicht-einvernehmlicher sexueller Handlungen.
+>Besonders verwerflich: Uploads mit DNA-Eingriffen oder Darstellungen nicht-einvernehmlicher sexueller Handlungen und Sex an Kindern und Jugendlichen unter 18 Jahren.
 
 ---
 
