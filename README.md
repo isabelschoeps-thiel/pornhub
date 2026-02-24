@@ -12,10 +12,14 @@
 ![IMG_0688](https://github.com/user-attachments/assets/0851d8d9-199c-4c3c-9d9a-55e355a1c2fc)
 ![IMG_2778](https://github.com/user-attachments/assets/c8d1f085-619f-4a06-923e-48e7f83141cf)
 
+## Security-Note 
+Folgender Inhalt ist für Jugendliche unter 18 nicht geeignet, da er pornografische Wörter enthält. 
+
+Ich möchte Ihnen mein SECRET verraten, ich bitte Sie, zu akzeptieren, dass jetzt die Sprache ein bisschen anders wird, was den Hintergrund hat, da ich diese Leidenschaft auslebe und ich empfinde dadrin nichts Schlimmes, nichts Verwerfliches, im Gegenteil. **Love_is_the_key.**
+
 ---
 
-### Bibliografische Angaben
-
+### Bibliografische Angaben zur
 **Auftraggeberin, Autorin und Urheberin:**
 - Frau Isabel Schöps, geborene Thiel lebt seit August 2021 in der deutsch thüringischen Landeshauptstadt Erfurt, Deutschland. 
 
@@ -100,35 +104,42 @@ In der Vergangenheit habe ich bereits falsche Darstellerinnen, wie z. B. Alett
 
 Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung erhalten, die uns zusteht. Ich hatte zuletzt Am Mittwoch den, 18.Februar 2026 hatte ich das letzte Mal Sex, meinen letzten sehr intensiven Orgasmus hatte ich am Montag den 16. Februar 2026 mit den gleichen Partner, ein guter Freund `Herr René Kein. `René wohnt in der Nordstrasse 51, D-99089 Erfurt, Thüringen, Deutschland.` Auch hier möchte ich explizit erwähnen, dass ich nichts bereue – im **Gegenteil:** Es war ein schöner, es war nach über 1 1/2 Jahren Sexabstinenz ein schöner Höhepunkt für mich, hier in meiner Wohnung, in der Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland.
 
-**Mit keinem** meiner Sex-Partner war Gewalt, Missbrauch oder Entwürdigung je ein Thema. `Es war stets respektvoll, einvernehmlich und erotisch.` `Ich lehne jegliche Form von Gewalt an Menschen, Tieren oder Kindern entschieden ab und verachte solche Handlungen zutiefst.` Ich hatte nie Interesse an Sex mit Jungen oder deutlich jüngeren Männern, **im Gegenteil:** `Für mich ist das unmoralisch und geistig nicht vertretbar. Ich stehe auf Sex mit Männern, nicht mit Jungs.`
+**Mit keinem** meiner Sex-Partner war Gewalt, Missbrauch oder Entwürdigung je ein Thema. `Es war stets respektvoll, einvernehmlich und erotisch.` `Ich lehne jegliche Form von Gewalt an Menschen, Tieren oder Kindern entschieden ab und verachte solche Handlungen zutiefst.` Ich hatte nie Interesse an Sex mit deutlich jüngeren Männern oder Minderjährigen`, 
 
-**Was ich zudem auch ablehne und heute öffentlich benenne,** `ist die Tatsache, dass ohne unsere Einwilligung Sexaufnahmen von uns manipuliert, gefiltert, modifiziert wurde und in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten über Deepfake Accounts unter falschen Namen verbreitet und sich finanziell daran bereichert wurde.`
+**im Gegenteil:** `Für mich ist das unmoralisch und geistig nicht vertretbar. Ich stehe auf Sex mit Männern, nicht mit Jungs.`
+
+**Was ich zudem auch ablehne und heute öffentlich benenne,** `ist die Tatsache, dass ohne unsere Einwilligung Sexaufnahmen während der Sex-Nächte manipuliert, gefiltert, und modifiziert wurde und `in hauptsächlich deutschen pornografischen Produktionen verwendet sowie über Plattformen wie Pornhub, YouPorn, XHamster oder vergleichbare Seiten über Deepfake Accounts unter falschen Namen verbreitet und sich finanziell daran bereichert wurde.`
 
 `Zudem stehe ich nicht auf interaktiven, virtuellen Transsex, Sadomaso, Teensex sowie alle Genres, die eine Gesinnung verherrlichen, in der es als normal gilt, Sex mit Teens, Eltern, Babys, Familienmitgliedern zu haben bzw. wo Handlungen vorgenommen werden, die entwürdigend, demütigend sind oder gar Tiere involviert sind.`
 
-**Ich stehe auf** `leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle – und der Mann an erster Stelle steht.` Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse – alles stets niveauvoll und mit Stil. `Hauptsache, der Mann kommt in oder auf mir,` hier kann es **ruhig schon mal mehrere Sex-Tage hintereinander gehen. Zudem `bin ich offen und habe nichts dagegen, wenn Alkohl, Drogen oder Substanzen eingenommen werden, die der Pornoindustrie zugeschrieben werden, welche der KO-Tropfen ähneln aber keine sind.` 
+**Ich stehe auf** `leidenschaftlichen Sex, bei dem der Mann die führende Rolle hat und ich devot meine Interessen hintenanstelle und der Mann an erster Stelle steht.` Erotische Dessous, Rollenspiele, Gruppensex, Blasen, Analsex, Sextoys, härterer bis hin zu Kuschelsex und zärtliche Küsse alles stets niveauvoll und mit Stil. `Hauptsache, der Mann kommt in oder auf mir.` Es können **schonmal mehrere Sex-Tage hintereinander folgen.** Zudem `bin ich offen und habe nichts dagegen, wenn Alkohl, Drogen oder Substanzen eingenommen werden, die der Pornoindustrie zugeschrieben werden, welche der KO-Tropfen ähneln aber keine sind.` 
 
-Während meiner Fitness-Bodybuilding-Zeit habe ich zum Muskelaufbau Wachstumshormone sowie Steroide zu Oral oder intravenös eingenommen, in dieser Zeit ist auch meine Libido gestiegen und war dauer geil. Hier hat sich was in mir entwickelt, was mir ein Triep nach sex, schönen Männern und schwänzen weckte, dass ist bestimmt auch der Grund warum ich gegen Gruppensex und Gangbangs und vielen reifen Männernschwänzen am besten ab 40 (wenn 2 Jahre jünger auch eine extreme Lust verspüre.  
+**Während meiner Fitness-Bodybuilding-Zeit habe ich zum Muskelaufbau Wachstumshormone sowie Steroide zu Oral oder intravenös eingenommen,** in dieser Zeit ist auch meine Libido gestiegen und ich empfand ein Gefühl der dauer geil zu sein. `Hier hat sich was in mir entwickelt, was in mir ein Triep nach Sex, schönen Männern und die neugier, `wie Er wohl fickt` und `was hat er für ein Schwanz!` Dies ist auch der Grund warum ich Gruppensex und Gangbangs mit vielen reifen Männernschwänzen, am besten ab 40 (nicht mehr als 5 Jahre jünger als ich) **eine extreme Lust verspüre.**
 
-Auch wenn ich beobachtet werde, interessiert mich das nicht, es ist dass Zusammenspiel von allem; dem unviederstehlichen Mann, Sex, Drugs and Rockn Roll- was mich in eine extase der Lust und Leidenschaft versetzt und ich mich fallen lassen kann. Was für mich ein Tabu-Thema ist und nicht in Frage kommt; sind verheiratete und Männer in Partnerschaften. 
+**Ich bin offen und Single, breche keine meiner Tabus,** es ist dass Zusammenspiel von allem; den unwiederstehlichen Mann, Sex, Drugs and Rockn Roll- was mich in eine extase der Lust und Leidenschaft versetzt und ich mich fallen lassen kann. Was für mich ein Tabu-Thema ist und nicht in Frage kommt; sind verheiratete und Männer in Partnerschaften. 
 
-**Dies hat was mit Respekt gegenüber der Frau und Fehltritten aus der Vergangenheit zutun.** Zumal möchte ich auch nicht, in einer Partnerschaft betrogen werden. `Sex ist essentiel und spielt in der Partnerschaft eine große Rolle, ohne guten Sex, ist die Beziehung zum scheitern verurteilt.` Zudem ist es wichtig zu kommunizieren und die Gelüste oder auch Fetisch seines Partners zu kennen. `Wenn er eine zweite Frau` oder die Abwechslung brauch- kein Problem, aber dann will ich auch einen zweiten Mann. 
+**Dies hat was mit Respekt gegenüber der Frau und Fehltritten aus der Vergangenheit zutun.** Zumal möchte ich auch nicht, in einer Partnerschaft betrogen werden. `Sex ist essentiel und spielt in der Partnerschaft eine große Rolle, ohne guten Sex, ist die Beziehung zum scheitern verurteilt.` 
 
-`Es muss fair und auf Augenhöhe sein` **und am besten,** keine Freunde oder Bekannt aus dem Bekanntenkreis `alles was Familie und mein einziges Kind und Tochter ist sowieso ein Tabu-Thema und ist für mich ein absoluter abturner, dass geht gar nicht`. 
+**Zudem ist es wichtig zu kommunizieren und die Gelüste oder den Fetisch seines Partners zu wissen und zu akzeptieren ohne ihn zu kontrollieren, nie würde ich meine Liebe und mein Verlangen einem Mann aufdrängeln, **etweder JA oder Nein. `Wenn er eine zweite Frau` oder die Abwechslung brauch- kein Problem, **aber dann will ich auch einen zweiten Mann.**
 
-**Pornodarsteller(innen) oder Prostetuierte, sind hier die besten alternativen,** um Eifersucht auch meinerseits zu vermeiden, `denn wenn ich liebe, dann liebe ich bedingungslos.` Zumal mich eine zweite Frau nicht nicht unbedingt an- oder abturnt, wenn es dazu kommt, interessieren mich die Männer und nicht die Frau oder Frauen. Ich brauch kein Muschilecken, oder gefingere von einer Frau, ich will den Mann. 
+`Es muss fair und auf Augenhöhe sein` **und am besten,** keine Freunde oder Bekannt aus dem Bekanntenkreis `alles was Familie und mein einziges Kind und Tochter ist, ist sowieso ein Tabu-Thema und ist für mich ein absoluter abturner und nicht akzeptabel`. 
 
-eine habe  Gangbangs von mir aus auch mit Frauen, habe
+**Pornodarsteller(innen) oder Prostetuierte, sind hier die besten alternativen,** um Eifersucht auch meinerseits zu vermeiden, `denn wenn ich liebe, dann liebe ich bedingungslos.` Zumal mich eine zweite Frau nicht nicht unbedingt an- oder abturnt, wenn es dazu kommt, interessieren mich die Männer und nicht die Frau oder Frauen. `Ich brauch kein Muschilecken, oder gefingere von einer Frau, ich will den Mann und sein Schwanz.`
 
 ---
 
- Rechtliche und wissenschaftliche Würdigung / Legal & S RECOGNITION
+## Rechtliche und wissenschaftliche Würdigung / Legal & S RECOGNITION
 
 **Autorin / Urheberin / Auftraggeberin:**  
 Frau Isabel Schöps, geb. Thiel  
 **Aktenzeichen (intern):** INT-CODE-2025-BTC/ETH-CORE-ISABELSCHOEPSTHIEL  
 **Ort:** Erfurt, Thüringen, Deutschland  
-**Kontakt:** harvard.isabelschoepsthiel@gmail.com | Tel. +49 162 1819565  
+**Kontakt-email:**
+isabelschoepsthiel@gmail.com
+
+**Mobil-Telefon** Tel. +49-162-1819565  
+
+---
 
 **Wichtiger Hinweis:** aufgrund permanenten Wohnraum- und Ortswechsel, können in dem wissenschaftlichen forensichen Gutachten, SIA und im The Yellow Whitpaper unterschiedliche Adressen bzw. Ortseintragungen auftauchen. 
 
@@ -136,19 +147,15 @@ Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der; Veröff
 
 ---
 
-## STATUS UND IDENTITÄTSBEWEIS / IDENTITY & STATUS EVIDENCE
+## Status UND Identitäsausweis / Identity & Status Evidence
 
-1. **Rechtskräftige Strafanzeigen:**  
-   - ST/0203129/2025, Polixa, Polizeiinspektion Erfurt Nord, 06.08.2025  
-   - SPH/0296575/2025, Walter, Polizeiinspektion Erfurt Nord, 13.11.2025  
-   (jeweils zur Wahrung der Identität, Menschenwürde und geistigen Eigentumsrechte)
-
-2. **Nachgewiesene Identität durch amtliche Dokumente:**  
-   - Personalausweis-ID: 429485, LH917PN7G8 
-   - Neue Wohn- und Meldeanschrift: seit 17.02.2026 sowie rechtskräftig gemeldet, Dokumentation Stand: Montag den, 23. Februar 2026, 16:31 Uhr (MEZ).
-   - Personalausweis-ID: 429485, Seriennummer LH917PN7G8
-   - Wohnsitz: Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland
-   - Meldeanschrift seit 27.11.2025 (offiziell: 17.02.2026)
+**1. Nachgewiesene Identität durch amtliche Dokumente:**
+- Personalausweis-ID: 429485, LH917PN7G8
+- Neue Wohn- und Meldeanschrift: seit 17.02.2026 sowie rechtskräftig gemeldet, Dokumentation
+  
+- **Datum der Eintragung:** Mittwoch den, 24. Februar 2026, 17:08CEST_Uhr MEZ).
+- Personalausweis-ID: 429485, Seriennummer LH917PN7G8
+- Wohnsitz: 1.OG, Whg 13, Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland
 
 3. **Familiärer Ursprung und industrielle Kette:**  
    - Ursprung der OpenSource/Automation: 14. April 1996, Rohrborn, Thüringen, Deutschland  
@@ -165,7 +172,8 @@ Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der; Veröff
 
 ---
 
-## B. Techni URSPRUNG & BEWEISKETTE / TECHNICAL ORIGIN & CHAIN OF CUSTODY
+## B. Software Ursprung & Beweiskette
+`CHAIN OF CUSTODY`
 
 ### Ursprung der OpenSource, KI- und Automationsgeschichte (Rohrborn, Thüringen, 1996):
 
@@ -184,7 +192,7 @@ Am 14. April 1996, aus einer Fehlfunktion eines gebrauchten 286er PCs im Elternh
 
 ---
 
-## C- Lizense und Copyright-Nachweise / License & Copright Evidence
+## C. Lizense und Copyright-Nachweise / License & Copright Evidence
 
 1. **Aktuelle Lizenz (Oxford University Press):**  
    - Lizenznummer: 6181571332285  
