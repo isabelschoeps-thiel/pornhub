@@ -1,4 +1,4 @@
-# GitHub Zenodo-Server
+# GitHub.com Server and Zenodo-Server
 ### Isabel Schoeps geb Thiel, Erfurt, Thuringa, Germany
 The GitHub Server and Zenodo.org Server, connects AI tools directly to GitHub platform. Not implemnet and use Copilot, AI Agent or AI-Tools. Delete all AI Tools and Intelligent Artefact Agenten, prompt.
 
