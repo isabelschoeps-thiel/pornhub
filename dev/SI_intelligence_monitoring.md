@@ -1,5 +1,5 @@
-# Change Management Policy  
-**SI Security Intelligence – Controlled Feature Requests & Bugfix Handling**
+## Change Management Policy  
+**SI Security Intelligenc Monitoring**
 
 ## Overview
 All feature requests, bug reports, and system changes within **SI Security Intelligence** and associated projects (e.g., Cybersecurity Structures, Blockchain Systems, Global Reporting Platforms) are subject to a strict change management process, defined and governed exclusively by **Isabel Schöps**, née Thiel.
