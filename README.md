@@ -119,7 +119,7 @@ Weder ich noch meine damaligen Partner haben jemals die finanzielle Anerkennung 
 
 ---
 
-## Rechtliche und wissenschaftliche Würdigung / Legal & S RECOGNITION
+## Rechtliche und wissenschaftliche Würdigung
 
 **Autorin / Urheberin / Auftraggeberin:**  
 Frau Isabel Schöps, geb. Thiel  
@@ -138,7 +138,7 @@ Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der; Veröff
 
 ---
 
-## Status UND Identitäsausweis / Identity & Status Evidence
+## Identitätsnachweis / Identiy Evidence
 
 **1. Nachgewiesene Identität durch amtliche Dokumente:**
 - Personalausweis-ID: 429485, LH917PN7G8
@@ -163,7 +163,7 @@ Der eingetragene Ort markiert den tatsächlichen Auftenthalt am Tag der; Veröff
 
 ---
 
-## B. Software Ursprung & Beweiskette
+# B. Software Ursprung & Beweiskette
 `CHAIN OF CUSTODY`
 
 ### Ursprung der OpenSource, KI- und Automationsgeschichte (Rohrborn, Thüringen, 1996):
@@ -213,42 +213,6 @@ Am 14. April 1996, aus einer Fehlfunktion eines gebrauchten 286er PCs im Elternh
 
 **Relevante historische Zeitmarken:**  
 1996 (DAEMON/Boot-Prozess), 1999, 2001, 2004, 2008–2026 (KI, Blockchain, Open Source, Automatisierung)
-
----
-
-## E. Rechtsverletzung & Missbräuchliche Nutzung 
-
-- **Identitätsdiebstahl, Technologiemissbrauch, Deepfake-Manipulation, Veruntreuung von Daten und Lizenzen**  
-- **Öffentliche und private Profile manipuliert oder gelöscht:** Wikipedia, GitHub, Apple-ID etc.  
-- **Keine finanzielle/institutionelle Anerkennung trotz mehrfacher Auszeichnungen** (AI/Blockchain-Awards, keine Auszahlung, kein Zugang zu eigenen Vermögenswerten, systematische Isolierung der Familie)  
-- **Mediale und gesellschaftliche Isolation** (2022–2026, dokumentiert und forensisch belegt)  
-- **Strafanzeigen, Nachtrag Staatsanwaltschaft Erfurt, Bundesgeneralstaatsanwalt, BKA, Bundesregierung** (Details siehe Nachweisstruktur oben)
-
----
-
-## F. Familiäre Rekonstruktion & Beweisführung / Family Evidence & Reconstruktion
-
-- **Löschung und Manipulation familiärer Register (Knörig, Fischer, Thiel, Schöps)**  
-- **Herr Helmut Knörig** Onkel der Urheberin: spielte eine Schlüsselrolle bei der Veröffentlichung der DAEMON KI Automation. Im Juni 1996 gelangte über eine Familiendiskette das Virus in industrielle Systeme, über seine Führungsposition bei ASI Computers, Fujitsu Siemens)  
-- **Nennung aller Onkel, Tanten, Cousins, Cousinen und dokumentierte Namensverschiebungen** (siehe detaillierte Beweisführung im Gutachten, Einzeldokumente und Bildmaterial belegen, dass insbesondere Onkel Helmut, Detlef und Werner Knörig, sowie Antje, Heike, Gisela Thiel geb. Knörig und Tochter Jona explizit in der Kette erscheinen)  
-- **Technische und genealogische Belege**: Archive, Standesamt, Nachweise von 1996–2026, Protokolle, Hardwarebelege, Zeugen
-
----
-
-## G. REFERENZRAHMEN / SCIENTIFIC REFERENCES
-
-- Antonopoulos, A. M. (2022). Mastering Bitcoin: Unlocking Digital Cryptocurrencies. O’Reilly Media.
-- Chatterjee, R., & Shevchenko, P. (2022). Digital Forensics and Cybercrime. Springer
-- Drahos, P. (2016). Intellectual Property, Indigenous People and their Knowledge. Harvard Cambridge University
-- O’Mahony, D. (2022). Open Source Law, Policy and Practice (2nd ed.). Oxford University Press.
-- Weitere vollständige Referenzen siehe Gutachten.
-
----
-
-## H. Urheberrechte & Abschluss / Copyright & Closure
-
-© 1983–2026 Isabel Schöps (geb. Thiel) | Creative Commons BY 4.0  Jegliche unerlaubte Nutzung, Veröffentlichung oder Bearbeitung ist strafbar. Alle Angaben, Beweise und Darstellungen beruhen auf eigener Recherche, Arbeit und Schöpfung.  
-Eidesstattliche Versicherung: Erfurt, Thüringen, Deutschland, den 04. Januar 2026, Unterschrift: Isabel Schöps
 
 ---
 
