@@ -23,7 +23,7 @@ Operates with NetNanny Mobile.
 [ONCE YOU'VE LABELED WITH RTA PLEASE ADD THE RTA LOGO TO YOUR SITE](http://www.rtalabel.org/?content=banners)
 Thank you for taking this important step in keeping children from accessing Adult material and labeling your Adult content appropriately with RTA.
 
-Also, please help by supporting ASACP and becoming a member to help fund the important work that ASACP does in continuing it's efforts to eliminate child pornography from the Internet. ASACP battles child pornography through its CP Reporting Hotline, and by organizing the efforts of the online adult industry to combat the heinous crime of child sexual abuse. To learn more about [**ASACP**](http://www.asacp.org) please visit: www.asacp.org
+Also, please help by supporting ASACP and becoming a [**member**](https://www.asacp.org/index.html) to help fund the important work that ASACP does in continuing it's efforts to eliminate child pornography from the Internet. ASACP battles child pornography through its [**CP Reporting Hotline**](http://www.asacp.org/index.html?content=report), and by organizing the efforts of the online adult industry to combat the heinous crime of child sexual abuse. To learn more about [**ASACP**](http://www.asacp.org) please visit: www.asacp.org
 
 If you are a supporter of ASACP or would like to apply and have added the RTA label to your adult sites, you will be given a special button to show this honorable status in appreciation for your support.
 
