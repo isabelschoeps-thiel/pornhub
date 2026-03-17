@@ -1,7 +1,7 @@
 <?php
-// Compatability library for rta
+Compatability library for rta
 
-// plugins_url() stuff
+plugins_url()
 
 if ( ! defined( 'WP_CONTENT_URL' ) )
     define( 'WP_CONTENT_URL', get_option( 'siteurl' ) . '/wp-content' );
