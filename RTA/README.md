@@ -44,8 +44,6 @@ Also, please help by supporting ASACP and becoming a [**member**](https://www.as
 
 If you are a supporter of ASACP or would like to apply and have added the RTA label to your adult sites, you will be given a special button to show this honorable status in appreciation for your support.
 
-Protect Your Business By Protecting Children!
-
 ## ADULT SITES
 Make a good faith effort to comply with the current laws and standard of recordkeeping of the US Government.
 Include statement that "All models were 18 and over at the time of the creation of such depictions" in a prominent position on the following pages: warning, home, splash, join and any other access page.
@@ -162,8 +160,7 @@ Electronic Evidence Compliance - A Guide For Internet Service Providers (cached)
 USER GENERATED CONTENT SITES
 Where applicable, follow ASACP's Best Practices for Adult Sites. For ASACP membership requirements for User Generated Content Sites.
 
-If you have additional questions or suggestions, please contact the membership   asacp.org.
-http://www.rtalabel.org/index.php?
+If you have additional questions or suggestions, [**please contact the membership asacp.org.**](https://www.asacp.org/index.html)
 
 **Code of Ethics**
 Make a good faith effort to comply with the current standard of recordkeeping of the US Government.
@@ -177,3 +174,8 @@ Promptly report incidences of suspected child exploitation to ASACP.
 Do business with companies that comply with the ASACP Code of Ethics.
 Display an ASACP Member button on your site as a testimonial that your site does not contain nor condone child exploitation.
 It is unacceptable to use meta tags, any search engine keywords, or text that denote child exploitation, such as this list of Unacceptable Terms (scanned for in 20 languages).
+
+
+> GitHub and Pornhub, Build for a better World *Protect Your Business By Protecting Children!*
+> by Miss Isabel Schöps geb. Thiel, form Germany, Thueringa, Erfurt
+
