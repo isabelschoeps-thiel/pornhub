@@ -1,5 +1,5 @@
-# SI Security Intelligence –
-**Global Wikipedia**
+# SI Security Intelligence
+**Global Wikipedia Eintrag**
 
 Welcome to the official documentation of **SI Security Intelligence**, founded by **Isabel Schöps**, née Thiel.  
 This platform provides a comprehensive overview of global cybersecurity structures, human rights protection, digital ethics, and technological innovations.
