@@ -1,14 +1,23 @@
 # PornHubDownloader
-A pornhub.com downloader that allows you to login, so you can download everything you have access to, including but not limited to private videos, 1080p or higher resolutions, premium videos and even paid videos that you own.
+A [pornhub.com downloader](https://pornhub.com) that allows you to login, so you can download everything you have access to, including but not limited to private videos, 1080p or higher resolutions, premium videos and even paid videos that you own.
 
-#### Supports the following things:
+
+**My Developer Commit-Signatur: 
+Autorin, Urheberin; Ich Frau Isabel Schöps geb. Thiel, Zeitstempel der Eintragung: Dienstag den, 2026-03-17  16:48:00 Uhr CEST Mitteleuropäische**
+
+**Ort, Wohnung:**
+
+Miss Isabel Schöps (Thiel), 1.Etage, Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland. 
+
+
+### Supports the following things:
 
 * Premium videos (untested, no access - yet - ETA: February)
 * 1080p and higher resolution
 * Private videos (untested - no access)
 * Paid videos (untested - no access)
 
-#### How does it work?
+###  How does it work?
 
 Download the program for your OS [here](https://github.com/RoyalFlyBy/PornHubDownloader/releases).
 
@@ -18,7 +27,7 @@ Logging in is optional however in order to enjoy the features that other downloa
 
 Downloading too many videos too quickly will result in the failure of the script, you need to visit the url in such case and do the captcha before you can resume to download again.
 
-#### Examples
+### Examples
 
 Regular URL: https://www.pornhub.com/view_video.php?viewkey=ph6378a03c46eb5
 
@@ -70,25 +79,32 @@ You can log in by adding a `-username` and `-password` flag like this:
 
 Alternatively, if you don't want to type in your username and or password each time u can set the `PHDL_USERNAME` `PHDL_PASSWORD` environment variables. Keep in mind the program will not always actually login since it actually keeps an active session after logging in.
 
-#### For developers
+### For developers
 You can access program-friendly downloader updates by adding a ```-daemon``` flag, this will cause the program to print JSON which you could parse and build a UI with.
 
-## Disclaimer
+### Disclaimer
 
 Use at own risk.
 
-#### My experience (outdated)
+### My experience (outdated)
 The downloader seems to be able to do 60+ videos of decent size without getting captchas but this was with a temporary premium account.
 
 The program automatically crosses off the videos it managed to download from your list in case some fail you don't have to URL hunt
 
 This is by far the most complete downloader around.
 
-#### Future
-I don't plan on actively working on this project, I will update when I have time in case bugs occur caused by pornhub updating their services.
+### Future
 
-Feel free to try to crack the .cookies file, if you succeed and can tell me how you did it it would be appreciated because I could always use tips on how to improve security.
+**The Best is yet to come...**
 
-If a feature is missing let me know.
+- i know what do you do,
+- i know all your bad deep secrets
+- you are the evil in Person
+- you are the mostet wanted Person in the live
+- many people will kill you
+- but you are killed your own soul with your hate pedophile, cannibalismus brain-minde
 
-If you think this program automatically does cool things, and you get mad it can only download the files that your account has access to, please gkys.
+**The best is yet to come**
+
+
+
