@@ -1,5 +1,7 @@
 # RTA
 
+[**Pornhub and all Subdomains**](https://pornhub.com*) is rated with an RTA label. Parents, you can easily block access to this site. [**Please read this page**](https://www.rtalabel.org/index.php?content=parents) for more information.
+
 The "Restricted To Adults, FSK18" website label was created by the Association of Sites Advocating Child Protection (ASACP) to better enable parental filtering, and to demonstrate the online adult industry's commitment to helping parents prevent children from viewing age-inappropriate content.
 
 The [**RTA Label**](http://www.rtalabel.org/?content=howto) is free to use, voluntary, and universally available to any website that wishes to clearly and effectively label itself as being inappropriate for viewing by minors.
