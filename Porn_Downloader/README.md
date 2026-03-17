@@ -1,5 +1,7 @@
 # PornHubDownloader
-A [pornhub.com downloader](https://pornhub.com) that allows you to login, so you can download everything you have access to, including but not limited to private videos, 1080p or higher resolutions, premium videos and even paid videos that you own.
+A [pornhub.com downloader](https://pornhub.com) that allows you to login, so you can download everything you have access to, including but not limited to private videos, 1080p or higher. Premium videos and evilSnuff Media. Your brain, your mind, your handling, in the deep deep event media web- this is the real Manifest of your ugly live. You, your community thinking we are dead... LOL... !
+
+Your own think, your own step in your owne real live. This is the truth, the big true is coming. We have all Evidence Media, files. All, the future is best of the live. 
 
 
 **My Developer Commit-Signatur: 
@@ -73,14 +75,16 @@ Then now I can download all the videos using this command:
 
 As mentioned above you can add the other flags with this example to enjoy the other features.
 
-You can log in by adding a `-username` and `-password` flag like this:
+adding a `Username` and `Full_Real_Name` 
 
-```./pornhubdownloader -videos=listofvids.txt -username "someusername" -password "somepassword"```
+```./pornhubdownloader -videos=listofvids.txt
+```
 
-Alternatively, if you don't want to type in your username and or password each time u can set the `PHDL_USERNAME` `PHDL_PASSWORD` environment variables. Keep in mind the program will not always actually login since it actually keeps an active session after logging in.
+see the `PHP_USERNAME` `PHP_FULL_REAL_NAME` environment variables. Keep in mind the program will not always actually login since it actually keeps an active session after logging in.
 
-### For developers
-You can access program-friendly downloader updates by adding a ```-daemon``` flag, this will cause the program to print JSON which you could parse and build a UI with.
+downloader updates  
+```-daemon
+```, this will cause the program to print JSON which you could parse and build a UI with.
 
 ### Disclaimer
 
