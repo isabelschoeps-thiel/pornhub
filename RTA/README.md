@@ -176,6 +176,9 @@ Display an ASACP Member button on your site as a testimonial that your site does
 It is unacceptable to use meta tags, any search engine keywords, or text that denote child exploitation, such as this list of Unacceptable Terms (scanned for in 20 languages).
 
 
-> GitHub and Pornhub, Build for a better World *Protect Your Business By Protecting Children!*
+> GitHub and Pornhub, Build for a better World !
+> 
+> *Protect Your Business By Protecting Children!*
+> 
 > by Miss Isabel Schöps geb. Thiel, form Germany, Thueringa, Erfurt
 
