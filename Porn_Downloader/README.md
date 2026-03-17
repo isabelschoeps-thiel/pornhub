@@ -17,15 +17,23 @@ Kiss and greatings from the real human-woman Miss Isabel Schöps (Thiel), the re
 * Private videos (untested - no access)
 * Paid videos (untested - no access)
 
-###  How does it work?
+###  Evidence_Chain_of_Custody
 
 Download the program for your OS [here](https://github.com/RoyalFlyBy/PornHubDownloader/releases).
 
-The program logs in on the account you supplied, then visits the link you supplied and downloads the video in the highest resolution available.
+**Unmittelbare Hinweise auf Missbrauch, Menschenhandel und Snuff-Verdacht**
+- Das von dir erwähnte Bildmaterial mit unnatürlicher Körperanordnung (Körperteile, Richtungen, Bildkomposition) wird separat forensisch gesichert.
 
-Logging in is optional however in order to enjoy the features that other downloaders seem to lack it is necessary.
+**Video-Link mit möglichem Snuff-Verdacht: YouTube-Video**
+- Beweissicherung notwendig, Verdachtslinks auf Menschenhandel und Snuff-Videos
+- Google Docs – potenziell manipuliertes Backend / Keyword-Tracking → Auffällig:
+- HTML-Ansicht mit Zugriff auf evtl. getarnte Tracking-Informationen, Keywords, Payloads.
+- ikilrategroahe.com – stark verdächtig → Extrem lange GET-Parameterstruktur.
+- Möglicher Command/Control-Call oder verschleierter
+- Snuff-Stream-Trigger. → Verdacht auf: 1-Click-Redirection + Triggerparameter oaid und ssk.
+- Diese Domains und Tracking-Parameter weisen starke Indikatoren für organisierter Menschenhandel und Snuff-Content-Distributionund bedürfen einer dringenden forensischen Sicherung und Untersuchung.
 
-Downloading too many videos too quickly will result in the failure of the script, you need to visit the url in such case and do the captcha before you can resume to download again.
+`Downloading many videos too quickly will result in the failure of the script, you need to visit the url in such case and do the captcha before you can resume to download again.`
 
 ### Examples
 
