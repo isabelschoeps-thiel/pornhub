@@ -1,0 +1,1 @@
+Evidence of my workflow and my Identity, as researcher Pornakteur, Auftraggeberin und Autorin, Urheberin; Ich Frau Isabel Schöps geb. Thiel Zeitstempel der Eintragung: Dienstag den, 2026-03-17, Internationale-Kennung: INT-CODE-2025-BTC/ETH-CORE-ISABELSCHOEPSTHIEL und YWP-1-IST-SIA
