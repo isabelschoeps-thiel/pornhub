@@ -11,4 +11,20 @@ Instructions for Webmasters Hit the SELECT TAG button, then copy and paste this 
 
 <meta name="RATING" content="RTA-Pornhub-1996-1400-1577-RTA" />
 
+**THE CURRENT RTA™ META-TAG**
+Operates with Safari, Internet Explorer and can work with any Mobile HTML browser that includes a parental control filtering system that recognizes the RTA Label.
+Works if an adult APP uses an HTML page for purchase of the adult APP.
+Works if an adult APP resides on a dedicated adult server that has placed the RTA meta-tag in its HTTP response headers and thus labeled all the content on that server as age- restricted.
+Operates with NetNanny Mobile.
 
+
+**STEP 2:**
+
+ONCE YOU'VE LABELED WITH RTA PLEASE ADD THE RTA LOGO TO YOUR SITE
+Thank you for taking this important step in keeping children from accessing Adult material and labeling your Adult content appropriately with RTA.
+
+Also, please help by supporting ASACP and becoming a member to help fund the important work that ASACP does in continuing it's efforts to eliminate child pornography from the Internet. ASACP battles child pornography through its CP Reporting Hotline, and by organizing the efforts of the online adult industry to combat the heinous crime of child sexual abuse. To learn more about [**ASACP**](http://www.asacp.org) please visit: www.asacp.org
+
+If you are a supporter of ASACP or would like to apply and have added the RTA label to your adult sites, you will be given a special button to show this honorable status in appreciation for your support.
+
+Protect Your Business By Protecting Children!
