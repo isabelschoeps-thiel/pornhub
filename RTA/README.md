@@ -7,6 +7,21 @@ The [**RTA Label**](http://www.rtalabel.org/?content=howto) is free to use, volu
 The RTA Verified service will allow you to verify that you have labeled your site(s) correctly. With this service you will be issued a special button and link to a verification page to let all your visitors know that not only are your site(s) labeled but they have also been verified by RTA (Restricted to Adults). Please make sure you have already labeled your site(s) before using the RTA Verified service.
 
 ## Webmasters Label Your Sites
+
+**WEBMASTERS LABEL YOUR SITES**
+
+**STEP 1:**
+
+[Label Your Website as Restricted To Adults - Click here to get labeled >>](http://www.rtalabel.org/?content=howto)
+
+**STEP 2:**
+
+[Once you have labeled your sites, verify them - Click here to get verified with the RTA Verified service >>](http://www.rtalabel.org/?content=rtaplus)
+
+**STEP 3:**
+
+[RTA Verified Subscribers >>](http://www.rtalabel.org/?content=RTAV)
+
 Instructions for Webmasters Hit the SELECT TAG button, then copy and paste this META tag into the header section of every page on your site that includes content inappropriate for minors:
 
 <meta name="RATING" content="RTA-Pornhub-1996-1400-1577-RTA" />
@@ -28,3 +43,73 @@ Also, please help by supporting ASACP and becoming a [**member**](https://www.as
 If you are a supporter of ASACP or would like to apply and have added the RTA label to your adult sites, you will be given a special button to show this honorable status in appreciation for your support.
 
 Protect Your Business By Protecting Children!
+
+**UNACCEPTABLE TERMS**
+The below words are searched for in 20 languages. This technology has been licensed to ASACP by Sex.Com for the exclusive use in fighting child exploitation only.
+- 4teen
+- 6teen
+- 7teen
+- adolescent
+- babysitting
+- baby
+- child
+- child porn
+- child exploitation
+- child sex
+- childporn
+- children
+- childsex
+- forteen
+- illegal lolitas
+- juvenile
+- kid porn
+- kiddie
+- kiddie porn
+- kiddie sex
+- kiddieporn
+- kiddiesex
+- kinderporn
+- kindersex
+- koprofgie
+- kotoran
+- lolita
+- lolitas
+- lolitaz
+- minor
+- minors
+- paedophilia
+- paidophilia
+- pdophile
+- pdophilie
+- pederastia
+- pediphile
+- pedofilia sex
+- pedoland
+- pedophelia
+- pedophile
+- pedophilia
+- pedophilia pictures
+- pedophylia
+- pre teen
+- pre teenage
+- pre teenager
+- pre teenagers
+- pre teens
+- pre-adolescent
+- preeteen
+- prelolitas
+- pre-teen
+- pre-teen porn
+- pre-teen sex
+- sex with children
+- sex with minors
+- sixteen
+- teen 13
+- teen 14
+- teen 15
+- teen 16
+- teen 17
+- teen13-17
+- under age
+- underage
+- underaged
