@@ -1,8 +1,13 @@
-# SI Security Intelligence
-**Global Wikipedia Eintrag**
+## SI Security Intelligence
+### Urheberin, Autorin:
+**Frau Isabel Schöps (Thiel)** ist am 16.07.1983, um 23:20 Uhr im Kreiskrankenhaus, Sömmerda, Thüringen, Deutschland mit ihren Familiennamen Thiel geboren.
 
-Welcome to the official documentation of **SI Security Intelligence**, founded by **Isabel Schöps**, née Thiel.  
-This platform provides a comprehensive overview of global cybersecurity structures, human rights protection, digital ethics, and technological innovations.
+**Aktuelle Wohn- und Meldeanschrift:**
+Hütergasse 4, D-99084 Erfurt, Thüringen, Deutschland. Wohnung Nr.13, erstes Obergeschoss
+
+
+**Global Wikipedia Eintrag**
+Welcome to the official documentation of **SI Security Intelligence**, founded by **Isabel Schöps**, née Thiel. This platform provides a comprehensive overview of global cybersecurity structures, human rights protection, digital ethics, and technological innovations.
 
 ## Mission & Vision
 To create a **secure, transparent, and ethical digital world**, where technological progress serves humanity, protects victims, and exposes perpetrators.
