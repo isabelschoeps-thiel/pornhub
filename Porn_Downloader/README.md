@@ -8,7 +8,7 @@ Autorin, Urheberin; Ich Frau Isabel Schöps geb. Thiel, 1.Etage, Hütergasse 4, 
 
 i wait for you..., every day, every Month, you are not exist. Please scroll to the end, and read the the Future-Plan, #planlos.
 
-Kiss yor Miss Isabel Schöps (Thiel), from Erfurt, Miau...
+Kiss and greatings from the real human-woman Miss Isabel Schöps (Thiel), the real Pornhub-Cat, Miau...
 
 ### Supports the following things:
 
@@ -94,6 +94,7 @@ The downloader seems to be able to do 60+ videos of decent size without getting 
 The program automatically crosses off the videos it managed to download from your list in case some fail you don't have to URL hunt
 
 This is by far the most complete downloader around.
+```
 
 ### Future
 
